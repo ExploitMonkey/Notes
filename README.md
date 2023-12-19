@@ -1,0 +1,1 @@
+These are all my notes over courses I have taken, I will continue to update this as I take more courses. I took all these notes using the Microsoft OneNote application, please leave any feedback you may have! :)
